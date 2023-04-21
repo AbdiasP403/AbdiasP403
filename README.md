@@ -1,7 +1,7 @@
 # Abdias Peña
 
-# 💫 About Me:
-🔝 I’m currently working on Schub as an IT support 🔝<br>👯 I’m collaborating on administration things  👯<br>🌱 I’m currently learning Cybersecurity 🌱
+# 😁 About Me:
+🔝 I’m currently working on Schub as an IT support 🔝<br>💪🏽 I’m collaborating on administration things  💪🏽<br> 🥸 I’m currently learning Cybersecurity 🥸
 
 
 ## 🌐 Socials:
